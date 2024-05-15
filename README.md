@@ -7,4 +7,4 @@
 
 -YOUTUBE: https://www.youtube.com/@SlimyyWolf
 
--DISCORD: https://discord.gg/zf3TRUNNek
+-DISCORD: [https://discord.gg/zf3TRUNNek](https://discord.gg/62tSaVRfNW)
